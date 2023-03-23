@@ -1,1 +1,0 @@
-# Tugas1_13020210040_Nurmila-Sari-R-Usia.txt.
